@@ -12,7 +12,7 @@
 - 🗣️ languages: Arabic / English.
 
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/13eioJ99l5SrX4hq3aEadJ7_vf5qFKTzR?usp=sharing](https://drive.google.com/drive/folders/13eioJ99l5SrX4hq3aEadJ7_vf5qFKTzR?usp=sharing)
+- 📄 Know about my experiences [Drive here](https://drive.google.com/drive/folders/13eioJ99l5SrX4hq3aEadJ7_vf5qFKTzR?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
